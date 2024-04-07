@@ -1,4 +1,4 @@
-Hi 👋 My name is Ekawich
+Hi 👋 I'm Ake
 ========================
 
 Student - Sriptaum University - Computer Engineer
